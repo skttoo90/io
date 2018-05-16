@@ -1,1 +1,10 @@
-# io
+http://www.52ngn.com
+http://www.52xpg.com
+http://www.58blb.com
+http://www.58sxa.com
+http://www.5lifi.com
+http://www.5tena.com
+http://www.60boy.com
+http://www.61bbt.com
+http://www.626hu.com
+http://www.665xs.com
